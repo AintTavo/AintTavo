@@ -1,4 +1,4 @@
-# Hi there, I'm ainttavo 👋
+# Hi there, I'm Gustavo Zaragoza Guerrero (a.k.a AintTavo) 👋
 
 ### Computer Systems Engineer | Future Nanotechnology Researcher 🔬
 
